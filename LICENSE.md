@@ -1,4 +1,4 @@
-# 
+# Seguro Advanced SystemCare herramientas para Mac OS | Automático Advanced SystemCare herramientas para PC Windows. Con configuraciones privadas y sistema de complementos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
